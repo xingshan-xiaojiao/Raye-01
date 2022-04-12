@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Raye-01.
 - 👀 I’m interested in YuGiOh and embedded system.
 - 🌱 I’m currently learning for a important exam，I will definitely pass it.
-- 💞️ Hope to have a partner to study together
+- 💞️ Hoping have a partner to study together
